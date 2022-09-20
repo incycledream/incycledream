@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning python
 - 📫 How to reach me:
 - Telegram > t.me/incycledream
-- Email > incycledream@gmail.com
 
 @Nikolay1257 is my sex partner
 
